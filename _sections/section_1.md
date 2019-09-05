@@ -13,7 +13,7 @@ As a 41 bed rest home you will find a warm and welcoming environment where peopl
 
 St. Barnabas is unique
 
-We are supported by "The Friends of St. Barnabas" representatives from local parishes who's aim is to provide enjoyment to the quality of life of the residents.
+
 
 Situated in an elegant character home within a tranquil garden setting.
 
