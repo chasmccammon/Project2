@@ -11,7 +11,7 @@ That’s because since they opened in 1956, the Home of St Barnabas staff strive
 
 As a 41 bed rest home you will find a warm and welcoming environment where people can enjoy individual and appropriate care as they require.
 
-<b style="font-size:16px;">St. Barnabas is unique.</b>
+<b style="font-size:20px;">St. Barnabas is unique.</b>
 
 
 
